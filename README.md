@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kawaiihalo1243
 - 👀 I’m interested in being friends with all of you!
-- 🌱 I’m currently learning to programming 
+- 🌱 I’m currently learning to program 
 - 💞️ I’m looking to collaborate on alot of things
 - 📫 How to reach me is up to you
 
